@@ -11,6 +11,8 @@
 评分：4.5/5 <br>
 
 关键词：县级市番外，感恩节，吵架，锁屋外，一哭二抱
+<br>
+<br>
 
 ### 剧情
 我第一次看标题以为是Hazard和Somers去Somers家过感恩节，然后用gay pride slay全场，读了才发现标题是个双关，本义出自“Pride slays thanksgiving, but a humble mind is the soil out of which thanks naturally grow. A proud man is seldom a grateful man, for he never thinks he gets as much as he deserves.” (傲慢会毁了感恩节，但一颗谦卑的心是感恩成长的土壤。一个傲慢的人很少会感恩，因为他永远不知满足)。这里的傲慢当然指的的是Hazard，他开头就毁掉了Somers的感恩节，把Somers气哭了。
