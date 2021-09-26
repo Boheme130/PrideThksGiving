@@ -6,12 +6,13 @@
 <br>
 
 
-作品：Pride Slays Thanksgiving
-作者：Gregory Ashe
-评分：4.5/5
+作品：Pride Slays Thanksgiving <br>
+作者：Gregory Ashe <br>
+评分：4.5/5 <br>
 
 关键词：县级市番外，感恩节，吵架，锁屋外，一哭二抱
 
+### 剧情
 我第一次看标题以为是Hazard和Somers去Somers家过感恩节，然后用gay pride slay全场，读了才发现标题是个双关，本义出自“Pride slays thanksgiving, but a humble mind is the soil out of which thanks naturally grow. A proud man is seldom a grateful man, for he never thinks he gets as much as he deserves.” (傲慢会毁了感恩节，但一颗谦卑的心是感恩成长的土壤。一个傲慢的人很少会感恩，因为他永远不知满足)。这里的傲慢当然指的的是Hazard，他开头就毁掉了Somers的感恩节，把Somers气哭了。
 
 感恩节前一晚，Somers想回家和父母过感恩节，因为一年下来只有这个时候他和父母的关系才没有那么弓张弩拔。但是Hazard看待感恩节的方式却太过冰冷无情，他指出感恩节的本质是火产业营造出来的虚假节日，喜欢过感恩节的人都是一群自作多情，愚蠢透顶的口臭者。Somers被这番话语狠狠羞辱到了，但Hazard却不以为意，说他以前羞辱Somers时他又没生气。
